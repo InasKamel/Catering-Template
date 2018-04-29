@@ -1,1 +1,1 @@
-# Cutering Services Website
+# Catering Services Website
